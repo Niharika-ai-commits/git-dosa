@@ -1,3 +1,3 @@
 # Dosa
 * Dosa flour
-* Light oil
+* karam
